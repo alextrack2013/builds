@@ -1,3 +1,3 @@
 # builds
 
-alex updates: https://t.me/alex_updates
+alex updates: https://t.me/alex_updates2
